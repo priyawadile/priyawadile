@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @priyawadile
 - 👀 I’m interested in Sports, Coding.
-- 🌱 I’m currently learning Computer Engineering from Usha Mittal Institute of Technology
+- 🌱 I’m currently pursuing Computer Engineering from Usha Mittal Institute of Technology
 - 📫 How to reach me 
   G-mail: priyawadile02@gmail.com
   LinkedIn: https://www.linkedin.com/in/priya-wadile-864882218
